@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Laralia3
+- 👀 I’m interested in video games, science, IA and music
+- 🌱 I’m currently learning MidJourney
+- 💞️ I’m looking to collaborate on project on Midjourney
+- 📫 How to reach me : discord : Laralia#6689
